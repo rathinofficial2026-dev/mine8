@@ -1,2 +1,2 @@
-# hgt
-Harshit Group Of Technology
+# Rathin Baidya
+Founder of Harshit Group Of Technology
